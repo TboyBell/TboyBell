@@ -1,14 +1,11 @@
-– Ollie
-=====================================================================================================================================
+> **All men by nature desire to know** – *Aristotle*
 
-All men by nature desire to know - Aristotle
-------------------------------------------------------
+**• Computer Programmer | Quantum Computing & Physics Enthusiast.**  
+**• Master's Student at City, St George – University of London.**  
+**• Always learning.**  
+**• More to discover – learning is a journey without end.**
 
-* Computer Programmer | Quantum Computing & Physics Enthusiast.
-* Master's Student at City, St George – University of London.
-* Always learning.
-
-* More to discover - learning is a journey without end.
+*– Ollie*
 
 
 ### Socials
