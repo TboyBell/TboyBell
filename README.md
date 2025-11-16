@@ -3,7 +3,7 @@
 **• Computer Programmer | Quantum Computing & Physics Enthusiast.**  
 **• Master's Student at City, St George – University of London.**  
 **• Always learning.**  
-**• More to discover – learning is a journey without end.**
+**• 七転び八起き**
 
 *– Ollie*
 
